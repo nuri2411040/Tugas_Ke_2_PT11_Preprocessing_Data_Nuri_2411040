@@ -1,0 +1,1 @@
+# Tugas_Ke_2_PT11_Preprocessing_Data_Nuri_2411040
